@@ -1,1 +1,1 @@
-# Fandango-at-Home
+Ah, "Fandango at Home" is a service offered by Fandango that allows you to rent or buy movies to stream online. It’s a way to watch new releases and popular films from the comfort of your home. You can access it through various devices, like smart TVs, computers, or mobile devices. If you’re looking for recommendations or need help navigating the service, just let me know!
